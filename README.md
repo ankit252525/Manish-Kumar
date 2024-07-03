@@ -12,7 +12,7 @@ Eager to dive into various technologies and always open to learning new ones. My
 
 ### 📫 Get in Touch
 - **Email:** [akumarktr7763@gmail.com](mailto:akumarktr7763@gmail.com)
-- **LinkedIn:** [Manish Kumar](https://www.linkedin.com/in/manish-kumar-a32762274?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- **LinkedIn:** (manish-kumar-a32762274/)
 
 ### 🤝 Let's Collaborate
 I'm open to collaboration on any exciting projects or ideas. Currently, I'm on the lookout for guidance and mentorship as I embark on this incredible journey.
